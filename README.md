@@ -4,4 +4,4 @@
 
 ## Equity dealer, Client onboarding specialist, Data Analyst
 
-! (https://meme-arsenal.com/create/meme/3967400)
+![image](https://meme-arsenal.com/create/meme/3967400)
